@@ -1,2 +1,2 @@
-# jacktheyan.github.io
-## My Eyes Project
+# Jack The Yan Portfolio
+
